@@ -1,6 +1,6 @@
 # How to download or play online McDonald’s game in 2023? [WINDOWS/MAC/LINUX]
 
-The other day I got nostalgic about this game ; a satirical [parody](https://en.wikipedia.org/wiki/Parody) of the business practices of the corporate quick-service restaurant giant [McDonald’s](https://en.wikipedia.org/wiki/McDonald%27s), taking the guise of a tycoon-style business-simulation game.
+The other day I got nostalgic about this game ; a satirical [parody](https://en.wikipedia.org/wiki/Parody) of the business practices of the corporate quick-service restaurant giant [McDonald’s](https://en.wikipedia.org/wiki/McDonald%27s), taking the guise of a tycoon-style business-simulation game. The purpose of this article is to simplify the download process since there is a bunch useless bloat on the internet regarding this game:
 
 ![default mcdonalds videogame image taken from wikimedia ](https://fallcheetah7373.files.wordpress.com/2023/01/image.png?w=688 align="left")
 
